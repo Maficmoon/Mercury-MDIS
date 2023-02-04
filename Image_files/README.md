@@ -1,1 +1,0 @@
-Dominici Image files
